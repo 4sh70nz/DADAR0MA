@@ -1,5 +1,5 @@
 ![image](https://github.com/user-attachments/assets/e0458b2b-fcc8-4916-a575-5a685a85978f)
-![image](https://github.com/user-attachments/assets/c9787193-2f9b-47e9-90e7-93f26cefa22e)
+![image]([https://github.com/user-attachments/assets/c9787193-2f9b-47e9-90e7-93f26cefa22e](https://64.media.tumblr.com/ac7e76011c64da2d9f0e2b4a1e64be42/3f74a7bd2ce379e7-4b/s2048x3072/c421be3826400e964d77a3c0b97d1b7ca6e8fa61.pnj))
 
 ‧₊˚ ⋅
       `”If I show my fangs, would you tell me that they're cool? >w< „`
